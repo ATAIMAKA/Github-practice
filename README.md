@@ -4,7 +4,7 @@
  
 [yasirabdullahi580@gmail.com](mailto:yasirabdullahi580@gmail.com)
 
-**Instructor:** 
+**Instructor** 
 
 [Mubaraq](https://github.com/Mubarraqqq)
 
